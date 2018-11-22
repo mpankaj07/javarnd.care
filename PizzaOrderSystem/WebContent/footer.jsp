@@ -1,0 +1,1 @@
+&copy;[2018-2019] Copyrights by <a href="http://http://www.i-techsoftware.com/">Bhopal Pizza</a>
